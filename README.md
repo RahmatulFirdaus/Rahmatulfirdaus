@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/originals/38/6b/49/386b49a64fffb252d8a7930ab900043f.gif" />
+  <img src="https://i.pinimg.com/originals/f2/51/97/f25197c789b8ad2de1d03a03ca14111d.gif" />
 </p>
 <h1 align="center">Hi 👋, I'm Rahmatul Firdaus</h1>
 <h3 align="center">known as yedija, I'm a logic person and a multi-platform app dev</h3>

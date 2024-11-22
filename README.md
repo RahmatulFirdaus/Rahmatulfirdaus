@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/originals/f2/51/97/f25197c789b8ad2de1d03a03ca14111d.gif" />
+<a href='https://moewalls.com/anime/priestess-moon-night-arknights-live-wallpaper/' target='_blank'><img src='https://moewalls.com/wp-content/uploads/2024/11/priestess-moon-night-arknights-thumb-728x410.jpg' title='Priestess Moon Night Arknights Live Wallpaper'></a>
 </p>
 <h1 align="center">Hi 👋, I'm Rahmatul Firdaus</h1>
 <h3 align="center">known as yedija, I'm a logic person and a multi-platform app dev</h3>
